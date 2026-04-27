@@ -1,4 +1,4 @@
-# 👋 Hi, I’m [Mustabshira Awal]
+# 👋 Hi, I’m Mustabshira Awal
 
 📊 **Data Analyst | Data-Driven Problem Solver | Insight Enthusiast**
 
